@@ -1,0 +1,3 @@
+ganesha namaha
+vinayaka
+lambodara
